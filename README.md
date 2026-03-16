@@ -1,1 +1,1 @@
-Testing
+Hello, I am quite a fan of programming and game design and I am here to learn more. I am currently working on a game right now as a personal project (which is going quite slowly right now). I personally enjoy reading, playing games, and swimming.
